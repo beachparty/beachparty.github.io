@@ -12,4 +12,4 @@ A place to include any other types of information that you'd like to include abo
 
 ### Contact me
 
-[info@BeachParty.press](mailto:info@BeachParty.press)
+[info@beachparty.press](mailto:info@beachparty.press)
