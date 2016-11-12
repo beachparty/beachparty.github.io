@@ -5,11 +5,11 @@ title: Donald Trump has won the election, what's next?
 
 Donald Trump has been elected the 45th President of the United States of America, and if you like it or not, he will soon be the most powerful man in the world. If you believe most of the things you see in the main stream media, you would be forgiven for thinking this is a terrible situation for the planet to face, but I would now argue this is actually great news.
 
-When Donald Trump first announced he was running, I was immediately anti Trump. I even built sculptures of him on the beach just so I could watch people kick him in the head. 
+When Donald Trump first announced he was running, I was immediately against this because of the things I was reading in the newspapers. I even built sculptures of him on the beach just so I could watch people kick him in the head. 
 
 <https://youtu.be/_xsdm2F2AGE>
 
-But as Wikileaks started releasing information about all the Hillary Clintons corruption, I began to realise Trump would be the better choice than her. My first choice was Bernie Sanders but he wasn't allowed to run because the DNC didn't like him. Politics is a dirty game and the Democratic National Committee (DNC) which is the formal governing body for the United Sates Democratic Party play a very dirty game indeed. Officially they should appear unbiased until a nominee is chosen. They claim to be impartial, but they didn't like Bernie Sanders.
+But was wrong to believe the main stream media, and Wikileaks started releasing information about some of Hillary Clintons corruption. My first choice was Bernie Sanders but he wasn't allowed to run because the DNC didn't like him. Politics is a dirty game and the Democratic National Committee (DNC) which is the formal governing body for the United Sates Democratic Party play as dirty as they get. Officially they should appear unbiased until a nominee is chosen. They claim to be impartial, but they didn't like Bernie Sanders.
 
 One reason for this is beacuse Sanders wants a more evenhanded approach to Israeli occupation of land Palestinians claim for a future state. Speaking at a debate with Clinton, Sanders, who declared himself 100% pro-Israel, said that Israel’s 2014 military assault on the Gaza Strip was disproportionate to the threat posed by Hamas rockets launched from the Palestinian territory into Israel. When Hillary was asked if she thought Israel used disproportionate force, she directly avoided answering the question in that way smarmy politicians do.
 
