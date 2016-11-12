@@ -10,6 +10,6 @@ Drew P Robertson is a writer, performer and political activist who made a name f
 
 As leader of a political party in the UK called #TheBeachParty, Drew P is an environmental activist making ephemeral works of art with a clear underlying message, he hopes to make the world a better place. Art activism, both directly within movements and in the surrounding culture, has been a key element of social protest as he enthusiastically builds upon grass root movements in the heart of London.
 
-### Contact us if you like use one of his articles in your print or online publication
+### Contact us if you like print one of his articles in your publications
 
 [info@beachparty.press](mailto:info@beachparty.press)
