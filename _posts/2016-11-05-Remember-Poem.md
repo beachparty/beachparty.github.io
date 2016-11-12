@@ -40,8 +40,9 @@ to help sort out this problem we all face today.
 He’d say, “Blow them both up, ‘cos I just didn’t give a fuck!"
 Yes if Guy Fawkes came back, he’d shout, “SEE YOU NEXT TUESDAY! 
 CUNTS!!!”
+
 ### drops the mic
-####cunts blow up
+#### cunts blow up
 
 
 Everybody else lives happily ever after. 
