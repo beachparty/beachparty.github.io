@@ -1,11 +1,8 @@
 ---
 layout: post
-title: Remember Remember The 5th of November Poem
+title: Remember Remember the 5th of November
 ---
 
-This is a site to read the words that I write.
-
-## Come back soon to see new content
 Remember, remember! 
 It's fucking November, 
 America's losing the plot;
@@ -50,7 +47,7 @@ CUNTS!!!”
 Everybody else lives happily ever after. 
 
 
-The End
+##The End
 
 
 A short poem by Drew P 
