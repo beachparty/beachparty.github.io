@@ -3,17 +3,17 @@ layout: post
 title: Donald Trump has won the election, what's next?
 ---
 
-Donald Trump has been elected the 45th President of the United States of America, and if you like it or not, he will soon be the most powerful man in the world. If you believe most of the things you see in the main stream media, you would be forgiven for thinking this is a terrible situation for the planet to face, but I would argue this is actually great news.
+Donald Trump has been elected the 45th President of the United States of America, and if you like it or not, he will soon be the most powerful man in the world. If you believe most of the things you see in the main stream media, you would be forgiven for thinking this is a terrible situation for the planet to face, but I would now argue this is actually great news.
 
-When Donald Trump first announced he was running, I was immediately anti Trump. I even built sculptures of him on the beach just so I could watch people kick him in the head. But as Wikileaks started releasing information about all the Hillary Clinton corruption, I began to realise Trump would be the better choice out the two.
+When Donald Trump first announced he was running, I was immediately anti Trump. I even built sculptures of him on the beach just so I could watch people kick him in the head. But as Wikileaks started releasing information about all the Hillary Clintons corruption, I began to realise Trump would be the better choice out the two.
 
-My first choice would have been Bernie Sanders. Unfornatually he wasn't allowed to run because the DNC didn't like him. We all know that politics is a dirty game and the Democratic National Committee (DNC) which is the formal governing body for the United Sates Democratic Party play very dirty indeed. Officially they should appear unbiased until a nominee is chosen. They claim to be impartial, but they didn't like Bernie Sanders.
+My first choice would have been Bernie Sanders. Unfornatually he wasn't allowed to run because the DNC didn't like him. We all know that politics is a dirty game and the Democratic National Committee (DNC) which is the formal governing body for the United Sates Democratic Party play a very dirty game. Officially they should appear unbiased until a nominee is chosen. They claim to be impartial, but they didn't like Bernie Sanders.
 
-One reason for this was beacuse Sanders wanted a more evenhanded approach to Israeli occupation of land Palestinians claim for a future state. Speaking at a debate with Clinton, Sanders, who declared himself 100% pro-Israel said that Israel’s 2014 military assault on the Gaza Strip was disproportionate to the threat posed by Hamas rockets launched from the Palestinian territory into Israel. When Hillary was asked if she thought Israel used disproportionate force, she directly avoided answering the question in that smarmy way professional politicians do.
+One reason for this was beacuse Sanders wanted a more evenhanded approach to Israeli occupation of land Palestinians claim for a future state. Speaking at a debate with Clinton, Sanders, who declared himself 100% pro-Israel said that Israel’s 2014 military assault on the Gaza Strip was disproportionate to the threat posed by Hamas rockets launched from the Palestinian territory into Israel. When Hillary was asked if she thought Israel used disproportionate force, she directly avoided answering the question in that way professional politicians do.
 
 <https://wikileaks.org/dnc-emails/emailid/7899>
 
-Debbie Wasserman Schultz, the chair of the Democratic National Committee, called the attempt by the Bernie Sanders campaign to moderate the party’s stance on Israel "disturbing". His push for a more evenhanded stance on the illegal Israeli occupation made some of Clinton’s backers very nervous. I think this why Hillary Clinton was actually chosen to run for the Democratics.
+Debbie Wasserman Schultz, the chair of the Democratic National Committee, called the attempt by the Bernie Sanders campaign to moderate the party’s stance on Israel "disturbing". His push for a more evenhanded stance on the illegal Israeli occupation made some of Clinton’s backers very nervous. Hillary Clinton was chosen because she did whatever her financial backers wanted.
 
 <https://wikileaks.org/podesta-emails/emailid/1120>
 
@@ -37,7 +37,7 @@ In 7 years of the the Obama Administration 8 whistle blowers have been prosecute
 
 Plus we now know that the voting machines were not rigged as America collectively sticks up a one finger salute to the establishment. I salute you Donald J Trump with my finger held high, may your deeds be better than half the bull shit you promised. Good luck and please try not to blow up the world.
 
-Now the next journalist or MP that says Jeremy Corbyn is unelectable will get a very harsh tweet from me.
+I hope this also means journalists and MP's will no longer be allowed to state that says Jeremy Corbyn is unelectable. 
 
 By Drew P Robertson
 
