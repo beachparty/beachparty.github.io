@@ -3,23 +3,23 @@ layout: post
 title: Donald Trump has won the election, what's next?
 ---
 
-Donald Trump has been elected the 45th President of the United States of America so if you like it or not, he will soon be the most powerful man in the world. If you believe most of the things you see in the main stream media, you would be forgiven for thinking this is a terrible situation for the whole planet, but I would argue this is actually great news.
+Donald Trump has been elected the 45th President of the United States of America, and if you like it or not, he will soon be the most powerful man in the world. If you believe most of the things you see in the main stream media, you would be forgiven for thinking this is a terrible situation for the planet to face, but I would argue this is actually great news.
 
-When Donald Trump first announced he was running, I was immediately anti Trump. I even built sculptures of him on the beach just so I could watch people kick him in the head. But as Wikileaks started releasing information about Hillary Clinton and her corruption, I began to realise Trump would be the better choice.
+When Donald Trump first announced he was running, I was immediately anti Trump. I even built sculptures of him on the beach just so I could watch people kick him in the head. But as Wikileaks started releasing information about all the Hillary Clinton corruption, I began to realise Trump would be the better choice out the two.
 
-My first choice would have been Bernie Sanders. Unfornatually he wasn't allowed to run because the DNC didn't like him. We all know that politics is a dirty game and the Democratic National Committee (DNC) which is the formal governing body for the United Sates Democratic Party play very dirty indeed. Officially they should appear unbiased until a nominee is chosen. They claim to be impartial, but they didn't like Bernie Sanders. Why?
+My first choice would have been Bernie Sanders. Unfornatually he wasn't allowed to run because the DNC didn't like him. We all know that politics is a dirty game and the Democratic National Committee (DNC) which is the formal governing body for the United Sates Democratic Party play very dirty indeed. Officially they should appear unbiased until a nominee is chosen. They claim to be impartial, but they didn't like Bernie Sanders.
 
-One reason was beacuse Sanders wanted a more evenhanded approach to Israeli occupation of land Palestinians claim for a future state. Speaking at a debate with Clinton, Sanders, who declared himself 100% pro-Israel said that Israel’s 2014 military assault on the Gaza Strip was disproportionate to the threat posed by Hamas rockets launched from the Palestinian territory into Israel. When Hillary was asked if she thought Israel used disproportionate force, she avoided directly answering the question in that smarmy way professional politicians do.
+One reason for this was beacuse Sanders wanted a more evenhanded approach to Israeli occupation of land Palestinians claim for a future state. Speaking at a debate with Clinton, Sanders, who declared himself 100% pro-Israel said that Israel’s 2014 military assault on the Gaza Strip was disproportionate to the threat posed by Hamas rockets launched from the Palestinian territory into Israel. When Hillary was asked if she thought Israel used disproportionate force, she directly avoided answering the question in that smarmy way professional politicians do.
 
-https://wikileaks.org/dnc-emails/emailid/7899
+<https://wikileaks.org/dnc-emails/emailid/7899>
 
 Debbie Wasserman Schultz, the chair of the Democratic National Committee, called the attempt by the Bernie Sanders campaign to moderate the party’s stance on Israel "disturbing". His push for a more evenhanded stance on the illegal Israeli occupation made some of Clinton’s backers very nervous. I think this why Hillary Clinton was actually chosen to run for the Democratics.
 
-https://wikileaks.org/podesta-emails/emailid/1120
+<https://wikileaks.org/podesta-emails/emailid/1120>
 
-What's even more alarming is Wikileaks showed us the DNC planned to run against someone like Donald Trump from the very start, because they though it would give Hillary the best chance of winning. They called him their "Pied Piper" candidate along with Ted Cruz and Ben Carson, and told the press to give them lots of exposure. Donald Trump ended up winning his primaries on one of the smallest campaign budgets thanks to the Clinton team. Back in March, The Newyork Times reported that Donald Trump had recieved $2 Billion worth of free media advertising during his campaign. 
-
+What's even more alarming is Wikileaks showed us the DNC planned to run against someone like Donald Trump from the very start, because they though it would give Hillary the best chance of winning. They called him their "Pied Piper" candidate along with Ted Cruz and Ben Carson, and told the press to give them lots of exposure. 
 ![Trump_Funding_Graph]({{ site.baseurl }}/images/TrumpFunding.png "Spending Chart")
+Donald Trump ended up winning his primaries on one of the smallest campaign budgets thanks to the Clinton team and the media she can control. Back in March, The Newyork Times reported that Donald Trump had recieved $2 Billion worth of free media advertising during his campaign. 
 
 Right up until the day of the election, Donald Trump was dismissed as a side show by the political establishment rather than a serious candidate because he was supposed to be nothing more than a freak show to help get Hillary elected. Sure there are third parties candidate, but this system is designed to effectively be a two horse race. Jill Stein as the leader of the Green Party would probably be better president then Trump and Clinton, but she wasn't even allowed to debate with them. If you convince enough people that voting for a third party is like wasting your vote, it becomes a self fulfilling prophecy. Even when the majority of America didn't like both of the top two candidates, the ended up voting for the one they hated the least to stop the other winning.
 
@@ -37,5 +37,7 @@ In 7 years of the the Obama Administration 8 whistle blowers have been prosecute
 
 Plus we now know that the voting machines were not rigged as America collectively sticks up a one finger salute to the establishment. I salute you Donald J Trump with my finger held high, may your deeds be better than half the bull shit you promised. Good luck and please try not to blow up the world.
 
-Any bloke that says Jeremy Corbyn is unelectable now, after DT won will get a swift kick to the pussy
+Now the next journalist or MP that says Jeremy Corbyn is unelectable will get a very harsh tweet from me.
+
+By Drew P Robertson
 
