@@ -19,7 +19,7 @@ Debbie Wasserman Schultz, the chair of the DNC, called the attempt by the Bernie
 
 <https://wikileaks.org/podesta-emails/emailid/1120>
 
-What's even more alarming is Wikileaks showed us how the DNC planned to run against someone like Donald Trump from the very start. They rather stupidly thought it would give Hillary the best chance of winning. They called Trump their "Pied Piper" candidate along with Ted Cruz and Ben Carson, and told the press to give them lots of exposure. 
+What's even more alarming is Wikileaks showed us how the DNC planned to run against someone like Donald Trump from the very start. They rather stupidly thought it would give Hillary the best chance of winning. They called Trump their "Pied Piper" candidate along with Ted Cruz and Ben Carson, and told the press to give them lots of exposure.
 ![Trump_Funding_Graph]({{ site.baseurl }}/images/TrumpFunding.png "Spending Chart")
 Donald Trump ended up winning his primaries on one of the smallest campaign budgets thanks to the Clinton team and their control of news media. Back in March, The New York Times reported that Donald Trump had recieved $2 Billion worth of free media advertising during his campaign and some of it was thanks to Hillary. 
 
