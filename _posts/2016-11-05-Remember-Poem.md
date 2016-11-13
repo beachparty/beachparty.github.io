@@ -3,11 +3,11 @@ layout: post
 title: Remember Remember the 5th of November
 ---
 
-Remember, remember! 
-It's fucking November, 
-America's losing the plot;
-And that is the reason
-Their election season
+<p>Remember, remember! </p>
+<p>It's fucking November, </p>
+<p>America's losing the plot;</p>
+<p>And that is the reason</p>
+<p>Their election season</p>
 Will never be forgot!
 You see Trump is a Twat, he’s a rich Plutocratic
 And half of a rigged two horse race.
