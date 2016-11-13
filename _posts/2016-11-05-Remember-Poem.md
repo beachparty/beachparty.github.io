@@ -10,7 +10,7 @@ excerpt_separator: <!--more-->
 <p>And that is the reason</p>
 <p>Their election season</p>
 <p>Will never be forgot!</p>
-<p>You see Trump is a Twat, he’s a rich Plutocratic</p>
+<p>You see Trump is a Twat, he’s a rich orange pratt,</p>
 <p>And half of a rigged two horse race.</p>
 <p>But Clinton the Cunt, running slightly in front,</p>
 <p>Is corrupt, she's a fucking disgrace! </p><!--more-->
@@ -34,7 +34,7 @@ excerpt_separator: <!--more-->
 <p>Remember, remember!</p>
 <p>This fucking November, </p>
 <p>We don’t have to swallow that shit anymore.</p>
-<p>Trump is a twat, he's a dick Plutocratic;</p>
+<p>Trump is a twat, probably a Plutocratic;</p>
 <p>And Clinton’s a puppet we call the “War Whore".</p> 
 <p>Now Guy Fawkes was a man with a possible plan</p>
 <p>to help sort out this problem we all face today.</p>
