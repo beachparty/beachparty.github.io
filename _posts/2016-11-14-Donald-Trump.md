@@ -41,7 +41,7 @@ There is also a chance whistle blowers like Edward Snowden and Julian Assange wi
  
 In 7 years of the the Obama Administration has prosecuted 8 whistle blowers under the espionage act. It's an archaic law from the First World War and Obama has sent more people to prison with this act, than all the other presidents combined. Hopefully President Trump can reverse this. If Donald Trump pardons people like Julian Assange, it would give him immense political capital with the public. We can all help by signing a petition to put more pressure on Trump to do the right thing.
 
-<https://www.change.org/p/donald-trump-pardon-julian-assange> Petition Donald Trump to Pardon Julian Assange!
+<https://www.change.org/p/donald-trump-pardon-julian-assange> 
 
 Plus we now know that the voting machines were not rigged as America collectively sticks up a one finger salute to the establishment. I salute you Donald J Trump with my finger held high, may your deeds be better than half the mad shit you promised. You don’t need a wall, you don’t need to persecute all muslims, you need to support ordinary people and fight the rights of your citizens. Good luck Mr President-Elect, and please try not to blow up the world.
 
