@@ -45,16 +45,15 @@ excerpt_separator: <!--more-->
 *drops the mic*
 *cunts blow up*
 
+<p>Everybody else lives happily ever after. </p>
+<p>Unless we die, hearing Hillarys laughter.</p>
 
-Everybody else lives happily ever after. 
+<p>Tuesday is Election day, which seems scary to me.</p>
+<p>If that War Whore bitch wins, she may start World War Three.</p> 
 
+<p>Thank you for visiting our new press website. </p>
+<p>Good morning, good evening, good luck and good night.</p> 
 
 ## The End
 
-
 A short poem by Drew P 
-
-<p>Tuesday is Election day, Good speed and good luck.</p>
-<p>I hope the War Whore loses, not the rich orange Fuck.</p> 
-<p>Thank you for visiting this site. </p>
-<p>Good morning, good evening and good night.</p> 
