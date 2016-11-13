@@ -39,8 +39,8 @@ excerpt_separator: <!--more-->
 <p>Now Guy Fawkes was a man with a possible plan</p>
 <p>to help sort out this problem we all face today.</p>
 <p>He’d say, “Blow them both up, ‘cos I just didn’t give a fuck!"</p>
-<p>Yes if Guy Fawkes came back, he’d shout, “SEE YOU NEXT TUESDAY! </p>
-<p>CUNTS!!!”</p>
+<p>Yes if Guy Fawkes came back, he’d shout, “SEE YOU NEXT TUESDAY!" </p>
+<p>"CUNTS!!!”</p>
 
 <p>### drops the mic</p>
 <p>### cunts blow up</p>
