@@ -3,25 +3,27 @@ layout: post
 title: Donald Trump has won the election, what's next?
 ---
 
-Donald Trump has been elected the 45th President of the United States of America, and if you like it or not, he will soon be the most powerful man in the world. If you believe most of the things you see in the main stream media, you would be forgiven for thinking this is a terrible situation for the planet to face, but I would argue this is actually better than if Hillary Clinton had won.
+Donald Trump has been elected the 45th President of the United States of America, and if you like it or not, he will soon be the most powerful man in the world. If you believe most of the things you see in the main stream media, you would be forgiven for thinking this is a terrible situation for the planet to face, but I would argue this is actually better than having a second Clinton President.
 
-Although when I first heard Donald Trump was running, I got swayed by the papers and was immediately against him. I even built sculptures of Donald Trump on the beach so I could watch people kick him in the head. Now I see it was wrong to form an opinion of Trump based on the establishment media. 
+Although when I first heard Donald Trump was running, I got swayed by the papers and was immediately against him. I even built sculptures of Donald Trump on my beach just to watch people kick him in the head. Now I see it was wrong to form an opinion of Donald Trump based on the establishment media. 
 
-<https://youtu.be/_xsdm2F2AGE>
+<https://youtu.be/_xsdm2F2AGE> Man kicks sand sculpture of Donald Trump in the head!
 
-Bernie Sanders was my first choice. Unfortunatly for him the Democratic National Committee (DNC) are dirtier than a tramps under pants and it looks like they will never get changed. Officially the DNC as the formal governing body for the United Sates Democratic Party they should be unbiased until a nominee is chosen. They claim to be impartial, but they really aren’t and didn't like Bernie Sanders.
+Bernie Sanders was my first choice. Unfortunatly for him the Democratic National Committee (DNC) are dirtier than a tramps under pants, and it looks like they will never change. Officially the DNC as the formal governing body for the United Sates Democratic Party should be unbiased until a nominee is chosen. They claim to be impartial, but they definitely aren’t and didn't like Bernie Sanders.
 
-One reason for this is beacuse Sanders wanted a more evenhanded approach to Israeli occupation of land Palestinians claim is theirs. Speaking at a debate with Clinton, Sanders, who declared himself 100% pro-Israel, said that Israel’s 2014 military assault on the Gaza Strip was disproportionate to the threat posed by Hamas rockets launched from the Palestinian territory into Israel. When Hillary was asked if she thought Israel used disproportionate force, she directly avoided answering this question in that way smarmy politicians do.
+One reason for this is beacuse Sanders wanted a more evenhanded approach to Israeli occupation of land I believe they stole from the Palestinians. Speaking at a debate with Clinton, Sanders, who declared himself 100% pro-Israel, said that Israel’s 2014 military assault on the Gaza Strip was disproportionate to the threat posed by Hamas rockets launched from the Palestinian territory into Israel. When Hillary was asked if she thought Israel used disproportionate force, she tactfully avoided answering this question, in that smarmy way politicians often do to avoid telling the truth.
 
-<https://wikileaks.org/dnc-emails/emailid/7899>
+<https://youtu.be/nGGGChmyGNo> HILLARY CLINTON vs BERNIE SANDERS RUMBLE IN NY! 
 
 Debbie Wasserman Schultz, the chair of the DNC, called the attempt by the Bernie Sanders campaign to moderate the party’s stance on Israel "disturbing". His push for a more evenhanded stance on the illegal Israeli occupation made some of Clinton’s backers very nervous. Hillary Clinton was chosen because she did whatever these financial backers wanted.
 
-<https://wikileaks.org/podesta-emails/emailid/1120>
+<https://wikileaks.org/dnc-emails/emailid/7899>
 
 What's even more alarming is Wikileaks showed us how the DNC planned to run against someone like Donald Trump from the very start. They rather stupidly thought it would give Hillary the best chance of winning. They called Trump their "Pied Piper" candidate along with Ted Cruz and Ben Carson, and told the press to give them lots of exposure.
 ![Trump_Funding_Graph]({{ site.baseurl }}/images/TrumpFunding.png "Spending Chart")
 Donald Trump ended up winning his primaries on one of the smallest campaign budgets thanks to the Clinton team and their control of news media. Back in March, The New York Times reported that Donald Trump had recieved $2 Billion worth of free media advertising during his campaign and some of it was thanks to Hillary. 
+
+<https://wikileaks.org/podesta-emails/emailid/1120>
 
 Right up until the day of the election, Donald Trump was dismissed as a side show by the political establishment rather than a serious candidate because he was supposed to be nothing more than a freak show to help get Hillary elected. Sure there are third parties candidate, but this system is designed to effectively be a two horse race. I hope people now realise how broken this system is.
 
@@ -39,11 +41,11 @@ There is also a chance whistle blowers like Edward Snowden and Julian Assange wi
  
 In 7 years of the the Obama Administration has prosecuted 8 whistle blowers under the espionage act. It's an archaic law from the First World War and Obama has sent more people to prison with this act, than all the other presidents combined. Hopefully President Trump can reverse this. If Donald Trump pardons people like Julian Assange, it would give him immense political capital with the public. We can all help by signing a petition to put more pressure on Trump to do the right thing.
 
-<https://www.change.org/p/donald-trump-pardon-julian-assange>
+<https://www.change.org/p/donald-trump-pardon-julian-assange> Petition Donald Trump to Pardon Julian Assange!
 
 Plus we now know that the voting machines were not rigged as America collectively sticks up a one finger salute to the establishment. I salute you Donald J Trump with my finger held high, may your deeds be better than half the mad shit you promised. You don’t need a wall, you don’t need to persecute all muslims, you need to support ordinary people and fight the rights of your citizens. Good luck Mr President-Elect, and please try not to blow up the world.
 
-I hope this election result will show you how abominable it is for journalists and MP's in the UK to state Jeremy Corbyn is unelectable. Fuck the lying press, fuck the establishment, anyone can be President. You just need dogged determination, drive and about a billion pounds in the bank. 
+I hope this election result will show you how abominable it is when journalists and MP's state Jeremy Corbyn is unelectable. 
 
 By Drew P Robertson
 
