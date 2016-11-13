@@ -40,7 +40,7 @@ excerpt_separator: <!--more-->
 <p>to help sort out this problem we all face today.</p>
 <p>He’d say, “Blow them both up, ‘cos I just didn’t give a fuck!"</p>
 <p>Yes if Guy Fawkes came back, he’d shout, “SEE YOU NEXT TUESDAY!" </p>
-<p>"CUNTS!!!”</p>
+<p>"CUNTS!!!”""</p>
 
 ### drops the mic
 ### cunts blow up
