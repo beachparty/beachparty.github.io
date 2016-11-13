@@ -10,11 +10,10 @@ excerpt_separator: <!--more-->
 <p>And that is the reason</p>
 <p>Their election season</p>
 <p>Will never be forgot!</p>
-
 <p>You see Trump is a Twat, he’s a rich Plutocratic</p>
-<p>And half of a rigged two horse race.</p><!--more-->
-<p>Then there’s Clinton the Cunt, standing slightly in front,</p>
-<p>Corrupt? She's a fucking disgrace! </p>
+<p>And half of a rigged two horse race.</p>
+<p>But Clinton the Cunt, who is slightly in front,</p>
+<p>Is corrupt, she's a fucking disgrace! </p><!--more-->
 <p>They lie, and they cheat, while they fight for this seat,</p>
 <p>In the White House to rule the land.</p>
 <p>What a terrible choice,</p>
