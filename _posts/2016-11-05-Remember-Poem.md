@@ -43,7 +43,7 @@ excerpt_separator: <!--more-->
 <p>"CUNTS!!!”""</p>
 
 ### drops the mic
-### cunts blow up
+#### cunts blow up
 
 <p>Everybody else lives happily ever after. </p>
 <p>Unless we all die, hearing Hillarys laughter.</p>
