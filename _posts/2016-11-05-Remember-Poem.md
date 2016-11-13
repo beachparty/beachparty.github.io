@@ -34,7 +34,7 @@ Remember, remember!
 This fucking November, 
 We don’t have to swallow that shit anymore.
 Trump is a twat, he's a dick Plutocratic;
-And Clinton’s a puppet we call the “War Whore".
+And Clinton’s a puppet we call the “War Whore". 
 Now Guy Fawkes was a man with a possible plan
 to help sort out this problem we all face today.
 He’d say, “Blow them both up, ‘cos I just didn’t give a fuck!"
