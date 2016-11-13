@@ -5,7 +5,7 @@ title: Donald Trump has won, how should I feel?
 
 Donald Trump has been elected the 45th President of the United States of America, and if you like it or not, he will soon be the most powerful man in the world. If you believe most of the things you see in the main stream media, you would be forgiven for thinking this is a terrible situation for the planet to face, but I would argue this is actually better than having Hillary in charge.
 
-Although when I first heard Donald Trump was running, I got swayed by the papers and was immediately against him. I even built sculptures of Donald Trump on my beach just to watch people kick him in the head. Now I see it was wrong to form an opinion of Donald Trump based on the establishment media. 
+I will admit that when I first heard Donald Trump was running, I got swayed by the papers and was immediately against him. I even built sculptures of Donald Trump on my beach just to watch people kick him in the head. Now I see it was wrong to form an opinion of Donald Trump based on the establishment media. 
 
 <https://youtu.be/_xsdm2F2AGE> Man kicks sculpture of Trump in the head!
 
@@ -45,10 +45,8 @@ In 7 years of the the Obama Administration has prosecuted 8 whistle blowers unde
 
 <https://www.change.org/p/donald-trump-pardon-julian-assange> 
 
-I was happy to see America collectively raise a one finger salute to the establishment as they turned their back on Killary and I too, salute you, Donald J Trump, with my finger held high. May your deeds be better than half the mad shit you promised. I hope that was for publicity and not what you actually intend to do. You don’t need a wall, you don’t need to persecute all muslims, you need to step up and fight for good of humanity. But go easy on the fighting, and don't get swayed into doing more illegal war nonsense. Good luck Mr President-Elect, and please try not to blow up the world.
+I was happy to see America collectively raise a one finger salute to the establishment as they turned their back on Hillary so I too, salute you, Donald J Trump, with my finger held high. I'm hoping all of that mad shit you promised in your campaign was to get publicity, and it's not what you actually intend to do. You don’t need a wall! The majority of muslims in the world are good people. Muhammad Ali was a muslim and an amazing person, some even say he was the greatest. He was a fighter, and like him you now need to step up and fight for what is right. But go easy on the fighting, and don't get swayed into dropping bombs on children and hospitals like Obama. Good luck Mr President-Elect, I think you will make a more honourable leader than Hillary Clinton, now prove me right, and please try not to blow up the world.
 
 I hope this election result makes it clear how abominable it is when journalists and MP's state Jeremy Corbyn is unelectable. 
 
 By Drew P Robertson
-
-<div class="fb-share-button" data-href="{{site.url}}{{page.url}}" data-layout="button_count" style="position: relative; top: -8px; left: 33px;"></div> 
