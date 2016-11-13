@@ -19,8 +19,7 @@ excerpt_separator: <!--more-->
 <p>What a terrible choice,</p>
 <p>It's not even a real choice,</p>
 <p>Just a cunt and a prick with small hands.</p>
-
-
+<p></p>
 <p>I’m conducting this poll, now we’re stuck in a hole;</p>
 <p>Which Kool Aid for you is more fitting?</p>
 <p>Chose Pepsi or Coke, but this test is a joke</p> 
@@ -29,8 +28,7 @@ excerpt_separator: <!--more-->
 <p>Now it's clear there's diarrhoea in both drinks?</p>
 <p>Literally coke in a glass, mixed with poo from my ass.</p>
 <p>Would you happily drink one, you think?</p>
-
-
+<p></p>
 <p>Remember, remember!</p>
 <p>This fucking November, </p>
 <p>We don’t have to swallow that shit anymore.</p>
@@ -41,19 +39,19 @@ excerpt_separator: <!--more-->
 <p>He’d say, “Blow them both up, ‘cos I just didn’t give a fuck!"</p>
 <p>Yes if Guy Fawkes came back, he’d shout, “SEE YOU NEXT TUESDAY!" </p>
 <p>"CUNTS!!!"</p>
-
+<p></p>
 ### drops the mic
 **cunts blow up**
-
+<p></p>
 <p>Everybody else lives happily ever after. </p>
 <p>Unless we don't, and Tuesdays a disaster.</p>
-
+<p></p>
 <p>Because next Tuesday is election day, which really scares me.</p>
 <p>If that War Whore bitch wins, she could start World War Three.</p> 
-
+<p></p>
 <p>Thank you for visiting our new press website. </p>
 <p>Good morning, good evening, good luck and good night.</p> 
-
+<p></p>
 ## The End
-
+<p></p>
 A short poem by Drew P 
