@@ -45,7 +45,7 @@ In 7 years of the the Obama Administration has prosecuted 8 whistle blowers unde
 
 <https://www.change.org/p/donald-trump-pardon-julian-assange> 
 
-I was happy to see America collectively raise a one finger salute to the establishment as they turned their back on Hillary so I too, salute you, Donald J Trump, with my finger held high. Don't get swayed by corruption or start dropping bombs on hospitals like Obama. You don't need a fucking wall. Just try to do things for the right reasons, and avoid selling out like the Clintons. I wish you good luck Mr President-Elect, I think you will make a more honourable leader than crooked Hillary, but whatever you do, please try not to blow up the world.
+I was happy to see America collectively raise a one finger salute to the establishment as they turned their back on Hillary so I too, salute you, Donald J Trump, with my finger held high. Don't get swayed by corruption or start dropping bombs on hospitals like Obama. You don't need a fucking wall. Muslims are good people. Stay away from exxcessive pussy grabbing and just try to do things for the right reasons. Avoid selling out like the Clintons if you can. Seriously, I wish you luck Mr President-Elect, I think you will make a more honourable leader than Hillary ever could, but whatever you do, please try not to blow up the world.
 
 I hope this election result makes it clear how abominable it is when journalists and MP's state Jeremy Corbyn is unelectable. 
 
