@@ -46,7 +46,7 @@ excerpt_separator: <!--more-->
 **cunts blow up**
 
 <p>Everybody else lives happily ever after. </p>
-<p>Unless we don't and Tuesdays a disaster.</p>
+<p>Unless we don't, and Tuesdays a disaster.</p>
 
 <p>Because next Tuesday is election day, which really scares me.</p>
 <p>If that War Whore bitch wins, she could start World War Three.</p> 
