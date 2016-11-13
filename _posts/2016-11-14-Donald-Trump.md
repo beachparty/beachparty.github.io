@@ -47,4 +47,4 @@ I hope this election result will show you how abominable it is for journalists a
 
 By Drew P Robertson
 
-<div class="fb-share-button" data-href="{{site.url}}{{page.url}}" data-layout="button_count" style="position: relative; top: -8px; left: 33px;"></div>
+<div class="fb-share-button" data-href="{{site.url}}{{page.url}}" data-layout="button_count" style="position: relative; top: -8px; left: 33px;"></div> 
