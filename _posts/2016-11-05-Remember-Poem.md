@@ -46,10 +46,10 @@ excerpt_separator: <!--more-->
 * cunts blow up
 
 <p>Everybody else lives happily ever after. </p>
-<p>Unless we die, hearing Hillarys laughter.</p>
+<p>Unless we all die, hearing Hillarys laughter.</p>
 
-<p>Tuesday is Election day, which seems scary to me.</p>
-<p>If that War Whore bitch wins, she may start World War Three.</p> 
+<p>Because this Tuesdays the election day, which is scary to me.</p>
+<p>If that War Whore bitch wins, she could start World War Three.</p> 
 
 <p>Thank you for visiting our new press website. </p>
 <p>Good morning, good evening, good luck and good night.</p> 
