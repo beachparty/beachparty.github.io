@@ -7,13 +7,13 @@ Donald Trump has been elected the 45th President of the United States of America
 
 Although when I first heard Donald Trump was running, I got swayed by the papers and was immediately against him. I even built sculptures of Donald Trump on my beach just to watch people kick him in the head. Now I see it was wrong to form an opinion of Donald Trump based on the establishment media. 
 
-<https://youtu.be/_xsdm2F2AGE> Man kicks sand sculpture of Donald Trump in the head!
+<https://youtu.be/_xsdm2F2AGE> Man kicks sculpture of Trump in the head!
 
 Bernie Sanders was my first choice. Unfortunatly for him the Democratic National Committee (DNC) are dirtier than a tramps under pants, and it looks like they will never change. Officially the DNC as the formal governing body for the United Sates Democratic Party should be unbiased until a nominee is chosen. They claim to be impartial, but they definitely aren’t and didn't like Bernie Sanders.
 
 One reason for this is beacuse Sanders wanted a more evenhanded approach to Israeli occupation of land I believe they stole from the Palestinians. Speaking at a debate with Clinton, Sanders, who declared himself 100% pro-Israel, said that Israel’s 2014 military assault on the Gaza Strip was disproportionate to the threat posed by Hamas rockets launched from the Palestinian territory into Israel. When Hillary was asked if she thought Israel used disproportionate force, she tactfully avoided answering this question, in that smarmy way politicians often do to avoid telling the truth.
 
-<https://youtu.be/nGGGChmyGNo> HILLARY CLINTON vs BERNIE SANDERS RUMBLE IN NY! 
+<https://youtu.be/nGGGChmyGNo> CLINTON vs SANDERS RUMBLE IN NY! 
 
 Debbie Wasserman Schultz, the chair of the DNC, called the attempt by the Bernie Sanders campaign to moderate the party’s stance on Israel "disturbing". His push for a more evenhanded stance on the illegal Israeli occupation made some of Clinton’s backers very nervous. Hillary Clinton was chosen because she did whatever these financial backers wanted.
 
