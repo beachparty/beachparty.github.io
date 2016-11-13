@@ -42,8 +42,8 @@ excerpt_separator: <!--more-->
 <p>Yes if Guy Fawkes came back, he’d shout, “SEE YOU NEXT TUESDAY! </p>
 <p>CUNTS!!!”</p>
 
-*drops the mic*
-*cunts blow up*
+* drops the mic
+* cunts blow up
 
 <p>Everybody else lives happily ever after. </p>
 <p>Unless we die, hearing Hillarys laughter.</p>
