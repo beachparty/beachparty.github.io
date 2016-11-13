@@ -46,3 +46,5 @@ Plus we now know that the voting machines were not rigged as America collectivel
 I hope this election result will show you how abominable it is for journalists and MP's in the UK to state Jeremy Corbyn is unelectable. Fuck the lying press, fuck the establishment, anyone can be President. You just need dogged determination, drive and about a billion pounds in the bank. 
 
 By Drew P Robertson
+
+<div class="fb-share-button" data-href="{{site.url}}{{page.url}}" data-layout="button_count" style="position: relative; top: -8px; left: 33px;"></div>
