@@ -12,7 +12,7 @@ Will never be forgot!
 You see Trump is a Twat, he’s a rich Plutocratic
 And half of a rigged two horse race.
 Then there’s Clinton the Cunt, standing slightly in front,
-Corrupt? She's a fucking disgrace! 
+Corrupt? She's a fucking disgrace! <!--more-->
 They lie, and they cheat, while they fight for this seat,
 In the White House to rule the land.
 What a terrible choice,
