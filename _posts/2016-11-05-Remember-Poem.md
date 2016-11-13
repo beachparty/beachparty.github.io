@@ -1,6 +1,7 @@
 ---
 layout: post
 title: Remember Remember the 5th of November
+excerpt_separator: <!--more-->
 ---
 
 <p>Remember, remember! </p>
@@ -11,7 +12,7 @@ title: Remember Remember the 5th of November
 <p>Will never be forgot!</p>
 
 <p>You see Trump is a Twat, he’s a rich Plutocratic</p>
-<p>And half of a rigged two horse race.</p>
+<p>And half of a rigged two horse race.</p><!--more-->
 <p>Then there’s Clinton the Cunt, standing slightly in front,</p>
 <p>Corrupt? She's a fucking disgrace! </p>
 <p>They lie, and they cheat, while they fight for this seat,</p>
