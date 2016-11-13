@@ -42,13 +42,13 @@ excerpt_separator: <!--more-->
 ___
 **drops the mic**
 **cunts blow up**
-___
+
 <p>Everybody else lives happily ever after. </p>
 <p>Unless we don't, and Tuesdays a disaster.</p>
-___
+
 <p>Because next Tuesday is election day, which really scares me.</p>
 <p>If that War Whore bitch wins, she could start World War Three.</p> 
-___
+
 <p>Thank you for visiting our new press website. </p>
 <p>Good morning, good evening, good luck and good night.</p> 
 
