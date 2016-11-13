@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Donald Trump has won the election, what's next?
+title: Donald Trump has won, how should I feel?
 ---
 
 Donald Trump has been elected the 45th President of the United States of America, and if you like it or not, he will soon be the most powerful man in the world. If you believe most of the things you see in the main stream media, you would be forgiven for thinking this is a terrible situation for the planet to face, but I would argue this is actually better than having Hillary in charge.
